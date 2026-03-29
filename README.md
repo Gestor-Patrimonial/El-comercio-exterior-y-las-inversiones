@@ -1,1 +1,2 @@
 # El-comercio-exterior-y-las-inversiones
+La trama de las actividades comerciales hace el resto extendiendo el elenco de artículos a vender o a fabricar. Por supuesto que la inversión en préstamos al gobierno no juega de manera distinta. El país inversor, desde el instante en que comienza a serlo, no puede prescindir de la defensa de sus capitales, ya sea bajo la forma de sugestiones o presiones encaminadas a tornar favorable a sus fines la orientación de la política económica, de la política aduanera y aun de la política social. 
